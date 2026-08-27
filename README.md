@@ -1,1 +1,1 @@
-*Replace with your own content, instructions in `Exercise.md`*
+HELLO MY NAME IS EGE KONUSAL
